@@ -1,1 +1,1 @@
-portifolio feiton para aula de mentoring 1, primeiro periodo
+portifolio feito para a aula de mentoring 1, primeiro periodo
